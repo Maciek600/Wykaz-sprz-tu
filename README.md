@@ -1,1 +1,1 @@
-# Wykaz-sprz-tu
+Tutaj umieszczać zajęcia laboratoryjne
