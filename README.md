@@ -1,0 +1,1 @@
+# Wykaz-sprz-tu
